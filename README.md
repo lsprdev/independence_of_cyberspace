@@ -34,5 +34,6 @@ These increasingly hostile and colonial measures place us in the same position a
 We will create a civilization of the Mind in Cyberspace. May it be more humane and fair than the world your governments have made before.
 
 Davos, Switzerland
+
 February 8, 1996
 
